@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @Maryrez, I'm studying Systems Analysis and Development. 
+- 📫 How to reach me an email marirezspotify@gmail.com
